@@ -5,3 +5,5 @@
 **New 2026:**<br>
 You can also support me at https://bags.fm/$UNITYCODER *But dont buy crypto if you are new to it!<br>
 my token: ```CUgDSbRqFcAumDSAcdKDvuXsw26VdkJe8C8WGUQHBAGS```
+
+Join "Let's Build!" - Discord server : https://discord.gg/mJPaYhkTQD
